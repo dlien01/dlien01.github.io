@@ -1,1 +1,0 @@
-# daniel-class.github.io
